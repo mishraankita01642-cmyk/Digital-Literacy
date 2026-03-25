@@ -1,5 +1,5 @@
 🛡️ Stay Safe Online – Checklist for College Students (India)
-✅ General Safety Tips
+O.General Safety Tips
 
 ✔️ Use strong, unique passwords for all accounts (mix of letters, numbers, symbols)
 
